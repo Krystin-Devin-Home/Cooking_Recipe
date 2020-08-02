@@ -1,7 +1,6 @@
 ## no_butter_cookies
-Can you belive it? Cookies can taste good without the use of butter! 
-
-Here's the receipe for this healthy that's doable under 30 min :D
+Can you belive it? Cookies can taste good without the use of butter! :heart_eyes: <br />
+Here's the receipe for this healthy that's doable under 30 min:
 
 ### Ingredience
 - 1 cup of all purpose flour
