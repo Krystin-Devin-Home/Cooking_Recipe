@@ -1,2 +1,2 @@
 # Cooking_Recipe
-document some cooking recipe and pictures :cookie:
+Share some cooking recipes :cookie:
