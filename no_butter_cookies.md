@@ -1,6 +1,5 @@
-## unbuttered_cookies
-- Healthy snacks!
-- Total time: 30 min
+## no_butter_cookies
+Can you belive it? Cookies can taste good without the use of butter or any oil! Here's the receipe for this healthy that's doable under 30 min :D
 
 ### Ingredience
 - 1 cup of all purpose flour
