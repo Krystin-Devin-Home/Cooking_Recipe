@@ -13,7 +13,7 @@ Here's the recipe for this healthy snack that can be done under 30 min:
 ### Steps
 - Mix all the stuff together and beat until soft
 - Scoop mixture into a pan with baking paper on top
-- Bake for 15min 
+- Bake for 15min, 375F
 
 ### Pictures
 ![img1](https://github.com/krystinli/Cooking_Recipe/blob/master/pics/678D81A6-29CC-44C1-BB32-451D1CCF0EF2.jpeg)
