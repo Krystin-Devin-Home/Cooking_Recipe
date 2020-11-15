@@ -5,12 +5,11 @@
 - 3/4 cup sugar
 - 1/2 teaspoon vanilla extract
 - 2 cups all-purpose flour
-- 1 teaspoon baking powder
 - 1/4 teaspoon salt
 - 1 large egg 
 
 ### Steps 
-- oven to 375°
+- oven to 350°
 
 
 ### Pictures
